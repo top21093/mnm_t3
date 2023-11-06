@@ -1,2 +1,2 @@
 # mnm_t3
-ditme Le Minh.
+ditme Le Minh Thuaanj.
